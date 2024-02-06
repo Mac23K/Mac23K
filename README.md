@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mac23K
 - 👀 I’m interested in 3D modeling
-- 🌱 I’m currently learning how to substance painter.
+- 🌱 I’m currently learning how to use substance painter.
 - 💞️ I’m looking to collaborate on 3d Modeling
 - 📫 How to reach me ...
 - 😄 Pronouns: she/Her
